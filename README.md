@@ -1,2 +1,2 @@
 # gestionagile
-Malika el ayadi 2AnnEE grpB
+Malika el ayadi 2AnnE grpB
